@@ -1,1 +1,1 @@
-Buscando aprendizado sobre tecnologia no geral, desde programação a desenvolvimento.
+Buscando aprendizado sobre tecnologia no geral. Desde programação a desenvolvimento web.
